@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @officercallum012343
+- 👀 I’m interested in Lua coding
+- 🌱 I’m currently learning more HTML & Python
+- 💞️ I’m looking to collaborate on nothing right now.
+- 📫 How to reach me: officercallum012343 at Discord.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am new!
